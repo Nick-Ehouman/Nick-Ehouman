@@ -1,4 +1,4 @@
-# Hi, I'm Nicolas Ehouman 👋
+# Hi, I'm Nick Ehouman 👋
 
 ### AI & Data Analytics Specialist | Engineering | Automation | Business & Operational Intelligence
 
